@@ -1,1 +1,2 @@
 # hobbie
+Zdravim moje konicky 
