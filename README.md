@@ -11,3 +11,11 @@ Zdravim moje konicky
 
 https://github.com/krejci125/hobbies/edit/main/README.md
 
+* gss
+
+* vs
+* sdgs
+* g
+* dsgh
+* sg daj
+* 
